@@ -1,1 +1,0 @@
-# parallilos-programmatismos-2
